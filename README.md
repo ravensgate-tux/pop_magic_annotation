@@ -40,4 +40,8 @@
 
 この注釈はRavensgateが展開するOpen Source Witchcraftの理解にも通じており、  
 Detonosis、TUX、神殿プロトコルなどの視点からも補完される予定です。
-# pop_magic_annotation
+
+---
+
+© 2025 Ravensgate-Tux  
+この文書は [Creative Commons BY-SA 4.0](https://creativecommons.org/licenses/by-sa/4.0/deed.ja) にて公開されています。
