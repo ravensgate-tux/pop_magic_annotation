@@ -1,4 +1,4 @@
-# 📘 Pop Magic 注解プロジェクト（Ravensgate視点）
+# 🐌 Pop Magic 注解プロジェクト（Ravensgate視点）
 
 このプロジェクトは、Grant Morrisonの小冊子『Pop Magic』を、日本語訳とともに再読・注釈するものです。  
 原典の意図を尊重しつつ、現代日本の魔術実践、特にRavensgateやOpen Source Witchcraftの文脈において、  
@@ -11,7 +11,7 @@
 
 <img src="Grant_Morrison.png" width="500">
 
-## 🧵 Pop Magic 宣言文（冒頭引用）
+## 🧛 Pop Magic 宣言文（冒頭引用）
 
 > **POP MAGIC! is Magic! For the People.**  
 > **Pop Magic! is Naked Magic!**  
@@ -23,7 +23,7 @@
 
 ---
 
-### 🧠 注釈（Ravensgate視点）
+### 🐌 注釈（Ravensgate視点）
 
 **この一節は、Pop Magicの本質──すなわち「隠し立てのない神秘」「万人に開かれた魔法」「象徴と母性の宇宙」──を、直感的かつ挑発的に表現している。**  
  • "7 veils" はイシスや神秘のヴェールに通じ、  
@@ -32,7 +32,7 @@
 
 ---
 
-## 🔖 目次：Pop Magic章構成（リンク付き）
+## 🧛 目次：Pop Magic章構成（リンク付き）
 
 - [THINKING ABOUT IT — 考えてみる](pop_magic_annotation_01.md)
 - [FIRST STEPS ON THE PATH — 魔術の第一歩](pop_magic_annotation_02.md)
