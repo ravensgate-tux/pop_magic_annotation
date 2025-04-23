@@ -17,3 +17,7 @@
 - 「START」という単語には、儀式を行うこと・シジルを描くこと・神に祈ることなど、**いかなる小さな一歩でも魔術になる**という含意がある。
 - Ravensgateにおける「手順を見て模倣する」「自分でバージョンを試す」精神にも通じる。始めなければ、魔術は存在しない。
 
+---
+
+© 2025 知られざる呪術師（Le Sorcier Inconnu）  
+本ドキュメントは [Creative Commons BY-SA 4.0](https://creativecommons.org/licenses/by-sa/4.0/deed.ja) に基づき公開されています。
