@@ -31,3 +31,7 @@
 - これは科学的な再現性とは異なるが、実践者の主観的な再現性を重視する立場であり、「観察者効果」や「プラシーボ効果」などとも通じる部分がある。
 - よって、Pop Magicでは「象徴体系に絶対的な意味はない」「使えるものを使え」が繰り返し説かれている。
 
+---
+
+© 2025 知られざる呪術師（Le Sorcier Inconnu）  
+本ドキュメントは [Creative Commons BY-SA 4.0](https://creativecommons.org/licenses/by-sa/4.0/deed.ja) に基づき公開されています。
