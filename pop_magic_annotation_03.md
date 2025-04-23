@@ -29,3 +29,7 @@
 - 「Fake it till you make it」はジェイソン・ミラーや心理学でも重視される行動ベースの変容技法である。演じることで本当に変化が起こるという思想。
 - 「持ち帰る」ことを強調するこのパラグラフは、ポップマジックにおける最大の倫理的指針ともいえる。「異界探訪」より「成果の適用」が重視されている。
 
+---
+
+© 2025 知られざる呪術師（Le Sorcier Inconnu）  
+本ドキュメントは [Creative Commons BY-SA 4.0](https://creativecommons.org/licenses/by-sa/4.0/deed.ja) に基づき公開されています。
