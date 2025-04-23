@@ -1,4 +1,4 @@
-## ✨ MAGICAL CONSCIOUSNESS — 魔術的意識
+## 🧙 MAGICAL CONSCIOUSNESS — 魔術的意識
 
 > Magical consciousness is a particular way of seeing and interacting with the real world.  
 > I experience it as what I can only describe as a "head-click," a feeling of absolute certainty accompanying a perceptual shift which gives real world transactions the numinous, uncanny feeling of dreams.  
@@ -50,7 +50,7 @@ The more aimless, the more you walk for the pleasure of pure experience, the fur
 
 ---
 
-### 🐚 注釈（Ravensgate視点）
+### 🐌 注釈（Ravensgate視点）
 
 - この章はRavensgateにおける「オーメン（前兆）観察」「日常空間の聖化」の核となる実践を言語化している。
 - 「head-click」という表現は、Detonosis的選択の瞬間とも解釈できる。
