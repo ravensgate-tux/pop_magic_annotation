@@ -1,8 +1,8 @@
-## 🔮 SIGILS — シジル（象徴魔術）(1/3)
+## 🧛 SIGILS — シジル（象徴魔術）(1/3)
 
 ---
 
-### ✨ 原文
+### 🧛 原文
 
 In the Pop Magic! style, the sigil (sij-i/n) is the first and one of the most effective of all the weapons in the arsenal of any modern magician.  
 The sigil technique was reconceptualized and modernized by Austin Osman Spare in the early 20th century and popularized by Chaos Magicians and Thee Temple ov Psychick Youth in the 1980s.  
@@ -44,7 +44,7 @@ Pop Magicのスタイルにおいて、シジル（sigil／シジル）は現代
 
 ---
 
-### 🐚 注釈（Ravensgate視点）
+### 🐌 注釈（Ravensgate視点）
 
 - この冒頭部分は、Ravensgateでもシジルを基礎的な魔術技術として位置づけていることと完全に一致する。
 - 「願望を忘れる」というステップは、ジェイソン・ミラーの“Release of Intent”や、RavensgateにおけるDetonosisの「意図の放出」と通底する。
