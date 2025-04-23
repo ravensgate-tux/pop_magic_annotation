@@ -25,3 +25,7 @@
 - 実践魔術の本質は、「理論の正しさ」ではなく、「再現された変化の積み重ね」にある。
 - Ravensgateではこの精神に基づき、GitHubへの記録共有や、シンプルで再現性の高い儀式プロトコルの開発を進めている。
 
+---
+
+© 2025 知られざる呪術師（Le Sorcier Inconnu）  
+本ドキュメントは [Creative Commons BY-SA 4.0](https://creativecommons.org/licenses/by-sa/4.0/deed.ja) に基づき公開されています。
