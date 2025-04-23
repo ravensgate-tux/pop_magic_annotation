@@ -14,6 +14,7 @@ Use the techniques you've learned to summon classical gods and demons and apply 
 Summon James Bond before a date by playing the themes to Go/dfinger and Thunderball while dressing in a tuxedo. Ur try summoning Dionysus, god of creative delirium, in his Trickster aspect, as Ace Ventura, Pet Detective from the Jim Carrey films- surround yourself with your own pets or toy animals, play the movies, imitate the actor's distinctive moves and use them to formulate a physical slgil which you can enact within in your designated ritual space. Do this until you BECOME Dionysus as Ace Ventura. Record what happens to your sense of self and think of ways to use these new "godlike" qualities you have summoned into yourself (or brought forth from your "subconscious" depending on which model you choose to explain your experiences). Think of these new qualities or gods as applications and upload them when you need to use them. The more you run the application the more convincing and intrinsic to
 Self it seems to become. This is why actors sometimes find it difficult to ·come down" from roles and why magicians often feel possessed by gods or demons. Applications are being run. You will soon realize that gods are "qualities" or default states of consciousness available to everyone. With much practice you will become proficient at accessing these states in yourself. Do not, however, assume that these states are ONLY internal psychological processes. The Big Ideas have been here long before you and will be here long after you are gone. They can be regarded as immensely powerful autonomous qualities and should be respected as such. Summoning too much ANGER into your life can make you a bore and a bully, summoning too much COMMUNICATION at the expense of other qualities can make you a conversation-hogging pedant and so on.
 There is always danger when one ··god" is worshipped in favor of all others. If you summon Ace Ventura you may find yourself becoming not funny and creative but annoy• ing. If you summon Clive Barker's fictional Cenobites just to see whether or not I'm punting absolute nonsense, be prepared to deal with powerful issues of domination, torture, submission and pain for these value states define the operational parameters of Cenobites.
+
 Summon James Bond before a date by playing the themes to Go/dfinger and Thunderba/1 while dressing in a tuxedo.
 
 ---
@@ -101,6 +102,7 @@ H.P.ラヴクラフトのクトゥルフ神話の怪物たち、ポケモン、
 それなりの覚悟を持て。  
 支配・拷問・服従・痛みといった、強烈な価値状態に直面することになるからだ。
 
+デート前に、タキシードを着ながら「Go/dfinger」と「Thunderba/1」のテーマ曲を流して、ジェームズ・ボンドを召喚しよう。
 ---
 
 ### 🐌 注釈（Ravensgate視点）
