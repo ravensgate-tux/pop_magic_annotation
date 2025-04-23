@@ -54,6 +54,7 @@
 - [DEMONS ARE… — デーモンとは…](pop_magic_annotation_16.md)
 - [HEALING — ヒーリング](pop_magic_annotation_17.md)
 - [DUDE, WHERE'S MY EGO? — おい、俺のエゴはどこだ？](pop_magic_annotation_18.md)
+- [THE ABYSS — 深淵（アビス）](pop_magic_annotation_19.md)
 
 ---
 
