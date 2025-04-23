@@ -56,3 +56,8 @@ The more aimless, the more you walk for the pleasure of pure experience, the fur
 - 「head-click」という表現は、Detonosis的選択の瞬間とも解釈できる。
 - 「すべてに意味があるように感じる」状態は、夢見の意識とも重なり、Crow Tarot や Deviant Moon Tarot の読解にも通じる。
 - 実験は「ランドスケープ・オラクル」としての応用が可能。都市のシンボルや偶発事象を魔術的に再構築するための技法として活用できる。
+
+---
+
+© 2025 知られざる呪術師（Le Sorcier Inconnu）  
+本ドキュメントは [Creative Commons BY-SA 4.0](https://creativecommons.org/licenses/by-sa/4.0/deed.ja) に基づき公開されています。
