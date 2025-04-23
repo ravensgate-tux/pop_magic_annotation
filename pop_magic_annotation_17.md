@@ -12,7 +12,7 @@ Visit your local Spiritualist Church, if you have one, and ask to see a demonstr
 
 ---
 
-###　🇯🇵 日本語訳
+### 🇯🇵 日本語訳
 
 私が好んで使う癒しの手法は、スピリチュアリズムの「ハンズ・オン・ヒーリング（手を当てる）」という技法だ。  
 これは、死者の世界にいる「ヒーラー」あるいは「獣医たち」への、簡単な自作の祈りによって行う。  
