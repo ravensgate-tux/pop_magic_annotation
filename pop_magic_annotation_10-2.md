@@ -69,3 +69,7 @@ All of these methods proved to be highly effective but for the eager beginner no
 - チャージ手法において「WANK TECHNIQUE」が強調されているが、これは**即効性の高い変性意識誘導法**であり、Detonosisのような不可逆的覚悟とは方向性が異なる。
 - 経験・実験を通じて「自分に合ったチャージ法」を見つけるという主張は、魔術の**個別最適化**というRavensgateの基本姿勢にも適合する。
 
+---
+
+© 2025 知られざる呪術師（Le Sorcier Inconnu）  
+本ドキュメントは [Creative Commons BY-SA 4.0](https://creativecommons.org/licenses/by-sa/4.0/deed.ja) に基づき公開されています。
