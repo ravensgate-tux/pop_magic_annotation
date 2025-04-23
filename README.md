@@ -55,6 +55,7 @@
 - [HEALING — ヒーリング](pop_magic_annotation_17.md)
 - [DUDE, WHERE'S MY EGO? — おい、俺のエゴはどこだ？](pop_magic_annotation_18.md)
 - [THE ABYSS — 深淵（アビス）](pop_magic_annotation_19.md)
+- [REVOLT INTO MAGIC — 魔術への反逆](pop_magic_annotation_20.md)
 
 ---
 
