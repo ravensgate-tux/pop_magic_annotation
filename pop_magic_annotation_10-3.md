@@ -107,3 +107,7 @@ The McDonald's Golden Arches, the Nike swoosh and the Virgin autograph are all c
 - 自分に適した「集中の断絶方法」を見つけるという発想は、**個別プロトコル構築**の核心であり、DetonosisやPDCA的フィードバックと対話可能。
 - 「クラリネットではなくギターを使う」比喩は、魔術における**自分の得意分野を活かす柔軟性**を示し、Ravensgateの「自分仕様化」の思想に深く通じる。
 
+---
+
+© 2025 知られざる呪術師（Le Sorcier Inconnu）  
+本ドキュメントは [Creative Commons BY-SA 4.0](https://creativecommons.org/licenses/by-sa/4.0/deed.ja) に基づき公開されています。
