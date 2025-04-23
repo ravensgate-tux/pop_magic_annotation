@@ -18,9 +18,7 @@ Summon James Bond before a date by playing the themes to Go/dfinger and Thunderb
 
 ---
 
-### 🇯🇵 日本語訳**
-
-### 🇯🇵 DEMONS ARE — いくつのヘルメス？
+### 🇯🇵 日本語訳　 — デーモンとは？
 
 悪魔とは……  
 恋人に捨てられたり、仲間から異端者扱いされたときの内側の感情──  
