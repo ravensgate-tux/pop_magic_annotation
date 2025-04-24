@@ -18,7 +18,7 @@ Be honest about your progress, your successes and failures. Tripping on 500 mush
 
 ---
 
-### 🐌 注釈（Ravensgate視点）
+### 🐌 「知られざる呪術師」による注釈
 
 - Ravensgateはグラント・モリスンの意見に同意する。「魔術師」と名乗っても「呪術師」でも良い。
 - Ravensgateではこれを神経言語プログラミング(NLP)のアンカリングやリフレーミングと解釈している。
