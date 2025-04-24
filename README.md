@@ -1,14 +1,11 @@
 # 🐌 グラント・モリスン著『Pop Magic』への注釈Zine
-<div align="right">
- by 知られざる呪術師（Le Sorcier Inconnu）
-</div>
 
 このZineは、アメコミ作家であり魔術師でもあるグラント・モリスンによる小冊子『Pop Magic』に、日本語訳と注釈を添えて再構築したものです。
 ※Zine（ジン）：思想や創作を自由に綴る自主制作の小冊子です。
 
 <div align="right">
 
-作成：知られざる呪術師（*Le Sorcier Inconnu*）  
+by 知られざる呪術師（*Le Sorcier Inconnu*）  
 ディスコーディアン暦3191年 POPの祝日 第13木曜日  
 ――爆死したポップコーン🌽の実を讃える日  
 
