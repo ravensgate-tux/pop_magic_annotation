@@ -1,4 +1,4 @@
-## 🧙 HOW TO BE A MAGICIAN 3 
+## 🧛 HOW TO BE A MAGICIAN 3 
 
 Put down the books, stop making excuses and START.
 
