@@ -1,4 +1,4 @@
-## 🧙 MAGICAL CONSCIOUSNESS — 魔術的意識
+## 🧛 MAGICAL CONSCIOUSNESS
 
 Magical consciousness is a particular way of seeing and interacting with the real world. I experience it as what I can only describe as a "head-click," a feeling of absolute certainty accompanying a perceptual shift which gives real world transactions the numinous, uncanny feeling of dreams. Magical consciousness is a way of experiencing and participating with the local environment in a heightened, significant manner, similar to the effects of some drug trips, Salvador Dali's "Paranoiac/critical" method, near death experiences, etc. Many apparently precognitive and telepathic latencies become more active during periods of magical consciousness. This is the state in which tea leaves are read, curses are cast, goals are scored, poems are written.
 
@@ -21,7 +21,7 @@ Watch for patterns in the flight of birds. Make oracular sentences from the lett
 
 ---
 
-### 🇯🇵 日本語訳 — 魔術的意識
+### 🇯🇵 魔術的意識
 
 魔術的意識とは、現実世界の見え方や関わり方が変容し、特異な意味を帯びて感じられる状態を指す。それは、はっきりとは説明できないが「カチッと何かが噛み合う感覚（head-click）」として体験される。日常的な出来事に神秘的で夢のような意味が付与される、知覚のシフトによってもたらされるのだ。この状態は、ドラッグ体験、サルバドール・ダリの「偏執的批判法」、あるいは臨死体験に近いとも言われる。予知能力やテレパシー的な感受性が強くなるのもこの意識状態においてである。お茶の葉を読む、呪いをかける、ゴールを決める、詩を書く──それらはすべて、この状態で行われる。
 
@@ -43,7 +43,7 @@ Watch for patterns in the flight of birds. Make oracular sentences from the lett
 
 ---
 
-### 🐌 注釈（Ravensgate視点）
+### 🐌 「知られざる呪術師」による注釈
 
 - この章はRavensgateにおける「オーメン（前兆）観察」「日常空間の聖化」の核となる実践を言語化している。
 - 「head-click」という表現は、Detonosis的選択の瞬間とも解釈できる。
