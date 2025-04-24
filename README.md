@@ -17,15 +17,17 @@
  <img src="Grant_Morrison.png" width="500">
 </div>
 
-## 🧛 Pop Magic 宣言文（冒頭引用）
+## 🧛 Pop Magic!
 
-> **POP MAGIC! is Magic! For the People.**  
-> **Pop Magic! is Naked Magic!**  
-> **Pop Magic! lifts the 7 veils and shows you the tits of the Infinite.**
+**POP MAGIC! is Magic! For the People.**  
+**Pop Magic! is Naked Magic!**  
+**Pop Magic! lifts the 7 veils and shows you the tits of the Infinite.**
 
-**POP MAGICはマジックだ！それも人々のための魔法。**  
-**POP MAGICは裸の魔法だ！**  
-**POP MAGICは七つのヴェールを取り払い、「無限」の乳房をさらけ出す。**
+## 🇯🇵 日本語訳 - ポップマジック!
+
+POP MAGICはマジックだ！それは人々のための魔法 
+POP MAGICは生の魔法だ！  
+POP MAGICは七つのヴェールを取り払い、「無限」の乳房を披露する
 
 ---
 
