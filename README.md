@@ -12,8 +12,9 @@ by 知られざる呪術師（*Le Sorcier Inconnu*）
 </div>
 
 ---
-
-<img src="Grant_Morrison.png" width="500">
+<div align="center">
+ <img src="Grant_Morrison.png" width="500">
+</div>
 
 ## 🧛 Pop Magic 宣言文（冒頭引用）
 
