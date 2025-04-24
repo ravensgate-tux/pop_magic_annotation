@@ -1,4 +1,4 @@
-## 🧙 FIRST STEPS ON THE PATH
+## 🧛 FIRST STEPS ON THE PATH
 
  Magic is easy to do. Dozens of rulebooks and instruction manuals are available in the occult or "mind, body and spirit" sections of most modern bookstores. Many of the older manuals were written during times when a powerful and vindictive Church apparatus was attempting to suppress all roads to the truth but most of them are generally so heavily coded and disguised behind arcane symbol systems that it's hardly worth the bother—except for an idea of how other people used THEIR imaginative powers to interpret non-ordinary contacts and communications.
 
