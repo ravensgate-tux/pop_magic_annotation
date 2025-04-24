@@ -1,4 +1,4 @@
-## 🧙 HOW TO BE A MAGICIAN
+## 🧛 HOW TO BE A MAGICIAN
 
 Simple. Declare yourself a magician, behave like a magician, practice magic every day.  
 
