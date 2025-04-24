@@ -8,7 +8,7 @@ Be honest about your progress, your successes and failures. Tripping on 500 mush
 
 ---
 
-### 🇯🇵 日本語訳 — 魔術師になるには
+### 🇯🇵 魔術師になるには
 
 シンプルだ。自分を魔術師だと宣言し、魔術師のように振る舞い、毎日魔術を実践すること。  
 
