@@ -5,7 +5,7 @@
 
 <div align="right">
 
-by 知られざる呪術師（*Le Sorcier Inconnu*）  
+**by 知られざる呪術師（*Le Sorcier Inconnu*）**  
 
 ディスコーディアン暦3191年 POPの祝日 第13木曜日  
 ――爆死したポップコーン🌽の実を讃える日  
