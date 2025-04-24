@@ -1,4 +1,4 @@
-## 🧹 BANISHING — バニッシング（空間の浄化と自己の調整）
+## 🧹 BANISHING
 
 > Banishing is a way of preparing a space for ritual use.  
 > There are many elaborate banishing rituals available, ranging across the full spectrum of pomposity.  
@@ -26,7 +26,7 @@
 
 ---
 
-### 🇯🇵 日本語訳 — バニッシング（空間の浄化と自己の調整）
+### 🇯🇵 追儺について
 
 バニッシングとは、儀式を行う空間を準備するための方法である。  
 壮大かつ仰々しいバニッシング・リチュアルは数多く存在するが、ここではそれを**「ウイルス対策ソフトのインストール」**のようなものだと考えてみよう。  
