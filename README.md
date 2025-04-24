@@ -49,7 +49,7 @@ POP MAGICは七つのヴェールを取り払いって「無限」の乳房を�
 | [MAGICAL CONSCIOUSNESS](pop_magic_annotation_06.md) | 魔術的意識 |
 | [APPLIED MAGIC](pop_magic_annotation_07.md) | 応用魔術 |
 | [THE MAGICAL RECORD](pop_magic_annotation_08.md) | 魔術日誌 |
-| [BANISHING](pop_magic_annotation_09.md) | バニッシング（結界術） |
+| [BANISHING](pop_magic_annotation_09.md) | 追儺について |
 | [SIGILS (1/3)](pop_magic_annotation_10-1.md) | シジル (1/3) |
 | [SIGILS (2/3)](pop_magic_annotation_10-2.md) | シジル (2/3) |
 | [SIGILS (3/3)](pop_magic_annotation_10-3.md) | シジル (3/3) |
