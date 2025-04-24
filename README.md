@@ -41,7 +41,7 @@ POP MAGICは七つのヴェールを取り払いって「無限」の乳房を�
 
 | Chapter | 日本語タイトル |
 |---|---|
-| [THINKING ABOUT IT](pop_magic_annotation_01.md) | 考えてみる |
+| [THINKING ABOUT IT](pop_magic_annotation_01.md) | 考えてみてほしい |
 | [FIRST STEPS ON THE PATH](pop_magic_annotation_02.md) | 魔術の第一歩 |
 | [HOW TO BE A MAGICIAN](pop_magic_annotation_03.md) | 魔術師になるには |
 | [HOW TO BE A MAGICIAN 2](pop_magic_annotation_04.md) | 魔術師になるには その2 |
