@@ -14,7 +14,7 @@ Anything you can imagine, anything you can symbolize, can be made to produce mag
 
 ---
 
-### 🐌 未知の呪術師による注釈
+### 🐌 知られざる呪術師による注釈
 
 - 「集中力、想像力、失敗から学ぶ能力」は、Ravensgateにおいては魔術のPDCAサイクルとして継続的に改善される能力と捉えている。
 - ローブを着る、コスプレをする、儀式道具を使うといった行為については、ジェイソン・ミラーの「気分が乗るなら使えばよい」というスタンスに近い。
