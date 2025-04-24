@@ -14,7 +14,7 @@ Applied Magic is about making things happen and performing the necessary experim
 
 - Ravensgateはグラント・モリスンの意見に同意する。
 - 魔法の体系は常に実験を行なって、Plan-DO-Check-Action(PDCA)で改善していくべきだろう。他の魔術師と共有できればなお良い。
-- 車の構造を全て書籍で学んだところで、運転がうまいのは運転の経験を積んだドライバーの方だろう。理論だけではいけない。
+- 車の構造を書籍で全て学んでも、運転がうまいのは経験を積んだドライバーの方だろう。理論だけではいけない。
 
 ---
 
