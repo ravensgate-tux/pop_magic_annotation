@@ -23,7 +23,7 @@
 **Pop Magic! is Naked Magic!**  
 **Pop Magic! lifts the 7 veils and shows you the tits of the Infinite.**
 
-## 🇯🇵 日本語訳 - ポップマジック!
+## 🇯🇵 ポップマジック!
 
 POP MAGICはマジックだ！それは人々のための魔法 
 POP MAGICは生の魔法だ！  
