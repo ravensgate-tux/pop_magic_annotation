@@ -39,28 +39,30 @@ POP MAGICは七つのヴェールを取り払いって「無限」の乳房を�
 
 ## 🧛 目次
 
-- [THINKING ABOUT IT — 考えてみる](pop_magic_annotation_01.md)
-- [FIRST STEPS ON THE PATH — 魔術の第一歩](pop_magic_annotation_02.md)
-- [HOW TO BE A MAGICIAN — 魔術師になるには](pop_magic_annotation_03.md)
-- [HOW TO BE A MAGICIAN 2 — 魔術師になるには その2](pop_magic_annotation_04.md)
-- [HOW TO BE A MAGICIAN 3 — 魔術師になるには その3](pop_magic_annotation_05.md)
-- [MAGICAL CONSCIOUSNESS — 魔術的意識](pop_magic_annotation_06.md)
-- [APPLIED MAGIC — 応用魔術](pop_magic_annotation_07.md)
-- [THE MAGICAL RECORD — 魔術記録](pop_magic_annotation_08.md)
-- [BANISHING — バニッシング（結界術）](pop_magic_annotation_09.md)
-- [SIGILS — シジル (1/3)](pop_magic_annotation_10-1.md)
-- [SIGILS — シジル (2/3)](pop_magic_annotation_10-2.md)
-- [SIGILS — シジル (3/3)](pop_magic_annotation_10-3.md)
-- [SIGILS: DISPOSAL — シジルの処理法](pop_magic_annotation_11.md)
-- [VIRAL SIGILS — ウイルス的シジル（ロゴ・ブランド）](pop_magic_annotation_12.md)
-- [HYPERSIGILS — ハイパーシジル](pop_magic_annotation_13.md)
-- [HOW TO CHAT UP GODS — 神々と会話するには](pop_magic_annotation_14.md)
-- [HOW MANY HERMES? — いくつのヘルメス？](pop_magic_annotation_15.md)
-- [DEMONS ARE… — デーモンとは…](pop_magic_annotation_16.md)
-- [HEALING — ヒーリング](pop_magic_annotation_17.md)
-- [DUDE, WHERE'S MY EGO? — おい、俺のエゴはどこだ？](pop_magic_annotation_18.md)
-- [THE ABYSS — 深淵（アビス）](pop_magic_annotation_19.md)
-- [REVOLT INTO MAGIC — 魔術への反逆](pop_magic_annotation_20.md)
+| Chapter | 日本語タイトル |
+|---|---|
+| [THINKING ABOUT IT](pop_magic_annotation_01.md) | 考えてみる |
+| [FIRST STEPS ON THE PATH](pop_magic_annotation_02.md) | 魔術の第一歩 |
+| [HOW TO BE A MAGICIAN](pop_magic_annotation_03.md) | 魔術師になるには |
+| [HOW TO BE A MAGICIAN 2](pop_magic_annotation_04.md) | 魔術師になるには その2 |
+| [HOW TO BE A MAGICIAN 3](pop_magic_annotation_05.md) | 魔術師になるには その3 |
+| [MAGICAL CONSCIOUSNESS](pop_magic_annotation_06.md) | 魔術的意識 |
+| [APPLIED MAGIC](pop_magic_annotation_07.md) | 応用魔術 |
+| [THE MAGICAL RECORD](pop_magic_annotation_08.md) | 魔術記録 |
+| [BANISHING](pop_magic_annotation_09.md) | バニッシング（結界術） |
+| [SIGILS (1/3)](pop_magic_annotation_10-1.md) | シジル (1/3) |
+| [SIGILS (2/3)](pop_magic_annotation_10-2.md) | シジル (2/3) |
+| [SIGILS (3/3)](pop_magic_annotation_10-3.md) | シジル (3/3) |
+| [SIGILS: DISPOSAL](pop_magic_annotation_11.md) | シジルの処理法 |
+| [VIRAL SIGILS](pop_magic_annotation_12.md) | ウイルス的シジル（ロゴ・ブランド） |
+| [HYPERSIGILS](pop_magic_annotation_13.md) | ハイパーシジル |
+| [HOW TO CHAT UP GODS](pop_magic_annotation_14.md) | 神々と会話するには |
+| [HOW MANY HERMES?](pop_magic_annotation_15.md) | いくつのヘルメス？ |
+| [DEMONS ARE…](pop_magic_annotation_16.md) | デーモンとは… |
+| [HEALING](pop_magic_annotation_17.md) | ヒーリング |
+| [DUDE, WHERE'S MY EGO?](pop_magic_annotation_18.md) | おい、俺のエゴはどこだ？ |
+| [THE ABYSS](pop_magic_annotation_19.md) | 深淵（アビス） |
+| [REVOLT INTO MAGIC](pop_magic_annotation_20.md) | 魔術への反逆 |
 
 ---
 
