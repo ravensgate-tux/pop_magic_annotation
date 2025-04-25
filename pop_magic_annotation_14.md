@@ -1,8 +1,6 @@
-## 🧛 HOW TO CHAT UP GODS（神とおしゃべりする方法）
+## 🧛 HOW TO CHAT UP GODS
 
 ---
-
-### 🧛 原文
 
 Accept this for the moment; there are Big Ideas in the world. They were Big before we were born and they'll still be big long after we're moldering. ANGER is one of those Big Ideas and LOVE is another one. Then there's FEAR or GUILT. So ... to summon a god, one has only to concentrate on that god to the exclusion of all other thought.
 
@@ -20,7 +18,7 @@ The magician consciously evokes these states and renames them gods in order to s
 
 ---
 
-### 🇯🇵 日本語訳 — 神とおしゃべりする方法
+### 🇯🇵 神々との話し方
 
 まずはこの前提を受け入れてほしい。この世界には「ビッグ・アイディア」が存在する。それらは我々が生まれる前から巨大であり、我々が朽ち果てた後もなお巨大であり続ける。たとえば「怒り（ANGER）」や「愛（LOVE）」、「恐怖（FEAR）」や「罪悪感（GUILT）」といったものがそれにあたる。
 
