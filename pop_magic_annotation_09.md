@@ -6,8 +6,7 @@ Most banishings are intended to surround the magician with an impenetrable shiel
  
 Why the need for protection?  
 
-Remember that you may be opening some part of yourself to an influx of information from "non-ordinary," apparently "Other" sources. If you practice ceremonial magic and attempt to summon godforms or spirits things will undoubtedly happen. Your foundations will be tested. There is always the danger of obsession and madness. As magical work progresses, you will be forced into confrontation with your deepest darkest fears and desires. It's easy to become scared, paranoid and stupid.  
-> Stay fluid, cling to no one self-image and maintain your sense of humor at all times. Genuine laughter is the most effective banishing ritual available.  
+Remember that you may be opening some part of yourself to an influx of information from "non-ordinary," apparently "Other" sources. If you practice ceremonial magic and attempt to summon godforms or spirits things will undoubtedly happen. Your foundations will be tested. There is always the danger of obsession and madness. As magical work progresses, you will be forced into confrontation with your deepest darkest fears and desires. It's easy to become scared, paranoid and stupid. Stay fluid, cling to no one self-image and maintain your sense of humor at all times. Genuine laughter is the most effective banishing ritual available.  
  
 Banishing reminds you that no matter how many gods you talk to, no matter how many fluorescent realms you visit, you still have to come home, take a shit, be able to cook dinner, water the plants and, most importantly, talk to people without scaring them.  
 
