@@ -21,8 +21,6 @@ I've met a couple of people who've told me they can't make sigils work so maybe 
 
 USE ONLY WHAT WORKS.
 
-**The McDonald's Golden Arches, the Nike swoosh and the Virgin autograph are all corporate viral sigils.**
-
 ---
 
 ### 🇯🇵 日本語訳（再翻訳）
