@@ -3,71 +3,27 @@
 
 ---
 
-### 🧛 原文
+Aleister Crowley embodied the destruction of Egoic Self structures as Choronzon, the Devil 333. Choronzon, we are told, is the all-devouring guardian of "the Abyss" (The Abyss being a suitably dramatic and evocative term for an experiential "gap" in human consciousness.) The term can be applied to that state of mind during which Individual Egoic Self-consciousness begins to cannibalize itself rather than confront the usually frightening fact that Personality is not " real'' in the existential sense and is simply a behavioral strategy.
 
-THE ABYSS
-Aleister Crowley embodied the destruction of Egoic Self
-structures as Choronzon, the Devil 333. Choronzon, we
-are told, is the all-devouring guardian of "the Abyss" (The
-Abyss being a suitably dramatic and evocative term for an
-experiential "gap" in human consciousness.) The term
-can be applied to that state of mind during which
-Individual Egoic Self-consciousness begins to cannibalize
-itself rather than confront the usually frightening fact that
-Personality is not " real'' in the existential sense and is
-simply a behavioral strategy.
+Most of us have had some small experience of the gigantic boundary complex Mega-ChoronzonnoznorohC-ageM; the Choronzonic Encounter is present in the relentless, dull self-interrogation of amphetamine comedowns or fevers, near-death experiences. Think of the chattering mind, annihilating itself in unstoppable self-examination and you will hear the voice of Choronzon.
 
-Most of us have had some small experience of the gigantic
-boundary complex Mega-ChoronzonnoznorohC-ageM; the
-Choronzonic Encounter is present in the relentless, dull
-self-interrogation of amphetamine comedowns or fevers,
-near-death experiences. Think of the chattering mind,
-annihilating itself in unstoppable self-examination and you
-will hear the voice of Choronzon.
-Choronzon then, is Existential Self at the last gasp, munching
-out its own brains, seeking nourishment and finding only
-the riddle of the Bottom That Is Bottomless. Choronzon is
-when there is nothing left but to die to nothingness. Beyond
-Choronzon, concepts of personality and identity cannot survive.
-Beyond Choronzon we are no longer our Self. The "personality"
-on the brink of the Abyss will do anything, say anything
-and find any excuse to avoid taking this disintegrating
-step into "non-being."
-Most of us in the increasingly popular Western Consumerist
-traditions tend to wait until we die before even considering
-Choronzon. Since we can only assume that Egoic Selfsense
-is devoured whole in whatever blaze of guilt or fury
-or self-denial or peace perfect peace our last flood of
-endorphins allows in the 5 minutes before brain death,
-the moment of death seems to me to be a particularly vulnerable
-one in which to also have to face Existential terror
-for the first time.
-Better to go there early and scout out the scenery. To die
-before dying is one of the great Ordeals of the magical path.
-:rhe Abyss, then, is that limit of Self consciousness where
-meaning surrenders and reverses into its own absolute
-opposite and is there consumed in "Choronzonic Acid," a
-hypersolvent so powerful it dissolves the SelfitSelf. Here
-you will encounter t he immense SELF / NOT SELF boundary
-wall on the edge of Egoic Consciousness and be obliterated
-against it. The Abyss is a hiatus in awareness, where
-notions of identity, race, being and territory are consumed
-in an agonizing fury of contradiction.
-Magicians who have successfully "crossed" the Abyss are
-considered no longer human, in the sP.nse that survival of
-this ordeal necessitates the breaking down of SELF into
-multiple personality complexes.
+Choronzon then, is Existential Self at the last gasp, munching out its own brains, seeking nourishment and finding only
+the riddle of the Bottom That Is Bottomless. Choronzon is when there is nothing left but to die to nothingness. Beyond
+Choronzon, concepts of personality and identity cannot survive. Beyond Choronzon we are no longer our Self. The "personality"
+on the brink of the Abyss will do anything, say anything and find any excuse to avoid taking this disintegrating step into "non-being." 
 
-**EXPERIMENT:**
-The so-called "Oath of the Abyss," is a corrosive encounter
-with Choronzonic forces inside the personality. It is not
-something to be undertaken lightly and I'd suggest many
-years of magical practice before attempting anything as
-stupid and as glamorous as destroying your carefully-established
-SELF. The rewards of a successful crossing of the
-Abyss are many but a failed attempt can leave the magician
-broken inside, consumed by doubt, fear and insecurity and
-quite useless to his or her community ...
+Most of us in the increasingly popular Western Consumerist traditions tend to wait until we die before even considering
+Choronzon. Since we can only assume that Egoic Selfsense is devoured whole in whatever blaze of guilt or fury or self-denial or peace perfect peace our last flood of endorphins allows in the 5 minutes before brain death, the moment of death seems to me to be a particularly vulnerable one in which to also have to face Existential terror for the first time.
+
+Better to go there early and scout out the scenery. To die before dying is one of the great Ordeals of the magical path.
+
+The Abyss, then, is that limit of Self consciousness where meaning surrenders and reverses into its own absolute opposite and is there consumed in "Choronzonic Acid," a hypersolvent so powerful it dissolves the SelfitSelf. Here you will encounter t he immense SELF / NOT SELF boundary wall on the edge of Egoic Consciousness and be obliterated against it. The Abyss is a hiatus in awareness, where notions of identity, race, being and territory are consumed in an agonizing fury of contradiction.
+
+Magicians who have successfully "crossed" the Abyss are considered no longer human, in the sP.nse that survival of this ordeal necessitates the breaking down of SELF into multiple personality complexes.
+
+> **EXPERIMENT:**
+>
+> The so-called "Oath of the Abyss," is a corrosive encounter with Choronzonic forces inside the personality. It is not something to be undertaken lightly and I'd suggest many years of magical practice before attempting anything as stupid and as glamorous as destroying your carefully-established SELF. The rewards of a successful crossing of the Abyss are many but a failed attempt can leave the magician broken inside, consumed by doubt, fear and insecurity and quite useless to his or her community ...
 
 ---
 
