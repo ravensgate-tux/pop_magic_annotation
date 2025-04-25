@@ -60,7 +60,7 @@ POP MAGICは七つのヴェールを取り払いって「無限」の乳房を�
 
 ---
 
-- [訳者・注釈者の後書き - POP MAGICのその先へ](afterword.md)
+-　🐌[訳者・注釈者による後書き - POP MAGICのその先へ](afterword.md)
 
 ---
 
