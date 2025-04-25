@@ -12,6 +12,7 @@ Now start squashing the string down, throwing out or combining lines and playing
   <img src="sigil2.png" width="100">
 </div>
 
+
 Most homemade sigils look a little spooky or alien — like UFO writing or witchy wall-scratchings. There are no rules as to how your sigil should look as long as it WORKS for you. RESULTS ONLY are important at this stage. If something doesn't work, try something else. The point is not to BELIEVE in magic, the point is to DO it and see how it works. This is not religion and blind faith plays no part.
 
 Charging and launching your sigil is the fun part (it's often advisable to make up a bunch of sigils and charge them up later when you've forgotten what they originally represented).
@@ -33,6 +34,7 @@ Almost impossible, you might say, but the human body has various mechanisms for 
 <div align="center">
   <img src="sigil2.png" width="100">
 </div>
+
 
 自作のシジルは、たいてい少し不気味だったり、UFOの文字や魔女の壁の落書きのように見えるものだ。見た目に「正解」はない。効けばいい。結果こそがすべてだ。もしうまくいかなければ、別の方法を試せばいい。魔術を「信じる」ことが目的ではなく、「やってみて効くかどうか」を確かめるのが目的だ。これは宗教ではない──盲信は必要ない。
 
