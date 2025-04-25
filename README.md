@@ -54,7 +54,7 @@ POP MAGICは七つのヴェールを取り払いって「無限」の乳房を�
 | [SIGILS (2/3)](pop_magic_annotation_10-2.md) | シジル (2/3) |
 | [SIGILS (3/3)](pop_magic_annotation_10-3.md) | シジル (3/3) |
 | [SIGILS: DISPOSAL](pop_magic_annotation_11.md) | シジルの処理 |
-| [VIRAL SIGILS](pop_magic_annotation_12.md) | ウイルス的シジル（ロゴ・ブランド） |
+| [VIRAL SIGILS](pop_magic_annotation_12.md) | ウイルス的シジル |
 | [HYPERSIGILS](pop_magic_annotation_13.md) | ハイパーシジル |
 | [HOW TO CHAT UP GODS](pop_magic_annotation_14.md) | 神々と会話するには |
 | [HOW MANY HERMES?](pop_magic_annotation_15.md) | いくつのヘルメス？ |
