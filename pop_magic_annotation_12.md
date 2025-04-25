@@ -11,6 +11,7 @@ The logo or brand, like any sigil, is a condensation, a compressed, symbolic sum
 Corporate entities are worth studying and can teach the observant magician much about what we really mean when we use the word "magic." They and other ghosts like them rule our world of the early 21st century.
 
 > **EXPERIMENT:**
+> 
 > Think hard about why the Coca-Cola spirit is stronger than the Dr. Pepper spirit (what great complex of ideas, longings and deficiencies has the Coke logo succeeded in condensing into two words, two colors, taking Orwell's 1984 concept of Newspeak to its logical conclusion?). Watch the habits of the world's great corporate predators like FOX, MICROSOFT or AOL TIME WARNER. Track their movements over time, observe their feeding habits and methods of predation, monitor their repeated behaviors and note how they react to change and novelty. Learn how to imitate them, steal their successful strategies and use them as your own. Form your own limited company or corporation. It's fairly easy to do with some paperwork and a small amount of money. Create your own brand, your own logo and see how quickly you can make it spread and interact with other corporate entities.
 > 
 > Build your own god and set it loose.
@@ -28,6 +29,7 @@ Corporate entities are worth studying and can teach the observant magician much 
 企業体（コーポレート・エンティティ）は研究する価値があり、観察力のある魔術師にとっては、私たちが「魔術」という言葉で本当に意味しているものについて多くを教えてくれる存在である。彼ら、そして彼らのような「ゴースト」たちが、21世紀初頭のこの世界を支配しているのだ。
 
 > **実験：**
+> 
 > コカ・コーラの「精霊」がドクター・ペッパーの「精霊」よりも強いのはなぜかを、じっくりと考えてみよう。コーラのロゴは、どれほど多くの観念、憧れ、欠如を凝縮して、たった2つの言葉と2色のデザインに閉じ込めているのか？　それは、オーウェルの『1984年』に登場するニュースピークの概念を、ある意味で論理的に極限まで推し進めたものなのかもしれない。世界の大企業という「捕食者たち」――FOX、マイクロソフト、AOLタイムワーナーのような存在の習性を観察しよう。時間をかけて彼らの動きを追跡し、どのように餌を探し、どのように獲物を狩り、変化や新奇なものにどう反応するかを観察しよう。彼らの成功した戦略を真似し、盗み、自分のものとして使ってみよう。自分自身の「有限会社」や「株式会社」をつくってみてもいい。書類手続きと少しの資金があれば、案外簡単にできる。そして、自分自身のブランド、自分自身のロゴをつくり、それがどれだけ早く広がり、他の企業的存在と相互作用するかを見てみよう。
 >
 > 自分自身の「神」を創り出し、世界に放とう。
