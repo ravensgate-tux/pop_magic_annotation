@@ -60,7 +60,7 @@ POP MAGICは七つのヴェールを取り払いって「無限」の乳房を�
 | [HOW MANY HERMES?](pop_magic_annotation_15.md) | ヘルメスは何人？ |
 | [DEMONS ARE…](pop_magic_annotation_16.md) | デーモンとは… |
 | [HEALING](pop_magic_annotation_17.md) | ヒーリング |
-| [DUDE, WHERE'S MY EGO?](pop_magic_annotation_18.md) | おい、俺のエゴはどこだ？ |
+| [DUDE, WHERE'S MY EGO?](pop_magic_annotation_18.md) | おい、オレのエゴはどこ行った？ |
 | [THE ABYSS](pop_magic_annotation_19.md) | 深淵（アビス） |
 | [REVOLT INTO MAGIC](pop_magic_annotation_20.md) | 魔術への反逆 |
 
