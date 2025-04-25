@@ -8,7 +8,9 @@ The sigil technique was reconceptualized and modernized by Austin Osman Spare in
 
 A sigil is a magically charged symbol like this one:  
 
-<img src="sigil1.png" width="100">
+<div align="center">
+  <img src="sigil1.png" width="100">
+</div>
 
 The sigil takes a magical desire or intent—let's say "IT IS MY DESIRE TO BE A GREAT ACTOR" (you can, of course, put any desire you want in there)—and folds it down, creating a highly-charged symbol. The desire is then forgotten. Only the symbol remains and can then be charged to full potency when the magician chooses. 
 
