@@ -2,19 +2,15 @@
 
 ---
 
-Accept this for the moment; there are Big Ideas in the world. They were Big before we were born and they'll still be big long after we're moldering. ANGER is one of those Big Ideas and LOVE is another one. Then there's FEAR or GUILT. So ... to summon a god, one has only to concentrate on that god to the exclusion of all other thought.
+Accept this for the moment; there are Big Ideas in the world. They were Big before we were born and they'll still be big long after we're moldering. ANGER is one of those Big Ideas and LOVE is another one. Then there's FEAR or GUILT. 
 
-Let's just say you wish to summon the Big Idea COMMUNICATION in the form of the god Hermes, so that he will grant you a silver-tongue. Hermes is the Greek personification of quick wit, art and spelling and the qualities he represents were embodied by Classical artists in the symbol of an eternally swift and naked youth, fledged with tiny wings and dressed only in streamers of air.
+So ... to summon a god, one has only to concentrate on that god to the exclusion of all other thought. Let's just say you wish to summon the Big Idea COMMUNICATION in the form of the god Hermes, so that he will grant you a silver-tongue. Hermes is the Greek personification of quick wit, art and spelling and the qualities he represents were embodied by Classical artists in the symbol of an eternally swift and naked youth, fledged with tiny wings and dressed only in streamers of air. Hermes is a condensation into pictorial form—a sigil, in fact—of an easily recognizable default state of human consciousness. When our words and minds are nimble, when we conjure laughter from others, when we make poetry, we are in the real presence of Hermes. We are, in fact, possessed by the god.
 
-Hermes is a condensation into pictorial form—a sigil, in fact—of an easily recognizable default state of human consciousness. When our words and minds are nimble, when we conjure laughter from others, when we make poetry, we are in the real presence of Hermes. We are, in fact, possessed by the god.
+I am not suggesting that there is a real or even a ghostly, Platonic Mount Olympus where Hollywood deities sit around a magic pool watching the affairs of mortals and pausing only to leap down whenever one of us "believes" in them hard enough. There may well be for all I know but it seems a complicated way to explain something quite simple. The truth is that there doesn't HAVE to be a Mount Olympus for you to encounter Hermes or something just like him using a different name. You don't even have to "believe" in Greek gods to summon any number of them. Hermes personifies a Big Idea and all you have to do is think him fervently and he'll appear so hard and so fast in your mind that you will know him instantly.
 
-I am not suggesting that there is a real or even a ghostly, Platonic Mount Olympus where Hollywood deities sit around a magic pool watching the affairs of mortals and pausing only to leap down whenever one of us "believes" in them hard enough. There may well be for all I know but it seems a complicated way to explain something quite simple.
+People tend to become possessed by gods arbitrarily because they do not recognize them as such; a man can be overwhelmed with anger (the Greek god Ares), we can all be "beside ourselves" with passion (Aphrodite) or grief (Hades). In life we encounter these Big Ideas every day but we no longer use the word "god" to describe them. The magician consciously evokes these states and renames them gods in order to separate them from his or her Self, in order to study them and learn. 
 
-The truth is that there doesn't HAVE to be a Mount Olympus for you to encounter Hermes or something just like him using a different name. You don't even have to "believe" in Greek gods to summon any number of them. Hermes personifies a Big Idea and all you have to do is think him fervently and he'll appear so hard and so fast in your mind that you will know him instantly.
-
-People tend to become possessed by gods arbitrarily because they do not recognize them as such; a man can be overwhelmed with anger (the Greek god Ares), we can all be "beside ourselves" with passion (Aphrodite) or grief (Hades). In life we encounter these Big Ideas every day but we no longer use the word "god" to describe them.
-
-The magician consciously evokes these states and renames them gods in order to separate them from his or her Self, in order to study them and learn. You may wish to connect with Hermes if you're beginning a novel or giving a speech or simply want to entertain a new beau with your incredible repartee.
+You may wish to connect with Hermes if you're beginning a novel or giving a speech or simply want to entertain a new beau with your incredible repartee.
 
 ---
 
@@ -22,19 +18,11 @@ The magician consciously evokes these states and renames them gods in order to s
 
 まずはこの前提を受け入れてほしい。この世界には「ビッグ・アイディア」が存在する。それらは我々が生まれる前から巨大であり、我々が朽ち果てた後もなお巨大であり続ける。たとえば「怒り（ANGER）」や「愛（LOVE）」、「恐怖（FEAR）」や「罪悪感（GUILT）」といったものがそれにあたる。
 
-神を召喚したいのであれば、必要なのはただその神だけに集中することである。
+神を召喚したいのであれば、必要なのはただその神だけに集中することである。たとえば「伝達（COMMUNICATION）」というビッグ・アイディアをギリシャ神ヘルメスの姿で召喚したいとする。彼があなたに雄弁な銀の舌を授けてくれるように。ヘルメスは、機知や芸術、綴りの神格化であり、古典芸術家たちはそれを「羽の生えた永遠に若く裸の青年」という象徴に凝縮した。このヘルメスという存在は、実際には「人間の意識状態の既定形」をシジル化したものに他ならない。我々の言葉や思考が冴えわたるとき、笑いを引き出すとき、詩を紡ぐとき、我々はまさにヘルメスの臨在の中にある。すなわち、神に憑かれているのである。
 
-たとえば「伝達（COMMUNICATION）」というビッグ・アイディアをギリシャ神ヘルメスの姿で召喚したいとする。彼があなたに雄弁な銀の舌を授けてくれるように。ヘルメスは、機知や芸術、綴りの神格化であり、古典芸術家たちはそれを「羽の生えた永遠に若く裸の青年」という象徴に凝縮した。
+モリスンは、プラトン的な実在または幽霊のような「本物のオリンポス山」が存在し、ハリウッド的な神々がそこで人間の営みを見守っており、誰かが十分に信仰すると舞い降りてくる…などと主張しているわけではない。そうかもしれないが、それでは単純な話がややこしくなる。本質的には、オリンポス山など存在しなくても、あなたはヘルメス、あるいは別の名を持つ似たような存在に出会うことができる。ギリシャ神を信じていなくても、いくらでも呼び出すことは可能である。ヘルメスはビッグ・アイディアを具現化した存在であり、熱意を込めて彼を想えば、その姿は即座に心に現れ、誰なのかすぐに分かるだろう。
 
-このヘルメスという存在は、実際には「人間の意識状態の既定形」をシジル化したものに他ならない。我々の言葉や思考が冴えわたるとき、笑いを引き出すとき、詩を紡ぐとき、我々はまさにヘルメスの臨在の中にある。すなわち、神に憑かれているのである。
-
-私は、プラトン的な実在または幽霊のような「本物のオリンポス山」が存在し、ハリウッド的な神々がそこで人間の営みを見守っており、誰かが十分に信仰すると舞い降りてくる…などと主張しているわけではない。そうかもしれないが、それでは単純な話がややこしくなる。
-
-本質的には、オリンポス山など存在しなくても、あなたはヘルメス、あるいは別の名を持つ似たような存在に出会うことができる。ギリシャ神を信じていなくても、いくらでも呼び出すことは可能である。ヘルメスはビッグ・アイディアを具現化した存在であり、熱意を込めて彼を想えば、その姿は即座に心に現れ、誰なのかすぐに分かるだろう。
-
-人はしばしば神に「無意識に憑かれる」が、それを神と認識しないだけである。たとえば、男が激しい怒りに取り憑かれたとき（アレス）、恋に我を忘れたとき（アフロディーテ）、深い悲しみに沈んだとき（ハデス）──我々は日常の中でそうした「神的状態」に頻繁に遭遇しているが、「神」とはもはや呼ばなくなった。
-
-魔術師はこれらの状態を意識的に呼び起こし、それに「神」という名前を与える。それは自己から分離し、観察し、学ぶための技法である。
+人はしばしば神に「無意識に憑かれる」が、それを神と認識しないだけである。たとえば、男が激しい怒りに取り憑かれたとき（アレス）、恋に我を忘れたとき（アフロディーテ）、深い悲しみに沈んだとき（ハデス）──我々は日常の中でそうした「神的状態」に頻繁に遭遇しているが、「神」とはもはや呼ばなくなった。魔術師はこれらの状態を意識的に呼び起こし、それに「神」という名前を与える。それは自己から分離し、観察し、学ぶための技法である。
 
 もしあなたが小説を書き始めるときや、演説をするとき、あるいは恋人に機知あふれる会話で印象づけたいとき──そのときはヘルメスとの接続を試みるとよい。
 
