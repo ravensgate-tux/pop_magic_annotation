@@ -10,22 +10,22 @@ Hermes, Mercury, Odin, Ganesh, Thoth: all these names represent variant embodime
 
 Reductionists may come to an understanding of magic by considering "Mount Olympus" as a metaphor for the collective Human head.
 
-**EXPERIMENT:**
-Pick a traditional god or demon from a book on magic or mythology and learn all you can about your chosen subject. I suggest you start with a benign deity unless you're stupid or hard and want to get into some nasty dirty psychic business, in which case pick a demon from one of the medieval grimoires and hope you're strong enough to handle the intense negative feelings "demons" embody.
-
-However, I'd suggest starting first with Hermes, the god of Magic, in his guise as Ganesh. Ganesh is known as a smasher of obstacles and part of his complex is that he opens the way into the magical world, so it's always good to get his acquaintance first if you're serious about following a magical path. 
-
-Call fervently upon Hermes. Luxuriate in his attributes. Drink coffee or Red Bull in his name or take a line of speed, depending on your levels of drug abuse. Fill your head with speedy images of jet planes, jet cars and bullet trains. Play "Ray of Light" by Madonna and call down Hermes. Surround yourself with FLASH comics and call down Hermes. 
-
-Tell him how very wonderful he is in your own words, and then call him into yourself, building a bridge between your own ever-growing feelings of brilliance and the descending energies of the Big Idea. 
-
-The arrival of the god will be unmistakable: you should experience a sense of presence or even mild possession (remember what this MEANS; we are "possessed' by Venus when LOVE destroys our reason. We are all possessed by Mars when ANGER blinds us. Learn to recognize the specific feelings which the word "possession" describes. This will allow you to study your chosen Big Idea and its effects on the human nervous system at close quarters without becoming too frightened or emotionally overwhelmed.) 
-
-You may hear a distinct voice inside your head which seems to have a strange-yet-familiar quality of "Otherness" or separateness. Ask questions and make note of the replies in your head. Remember anything specific you hear and write it down no matter how strange it seems. Maintain the sense of contact, question and response for as long as you're able and see what you can learn. 
-
-Remember Hermes is a trickster also and has a love of language and games, so be prepared for clever wordplay and riddles when you contact this Big Idea. Sometimes the rapid torrent of puns and jokes can seem like a nightmare of fractal iterations but if you're going to play with Hermes, be ready to think fast and impress with your wit. 
-
-If, on the other hand. there's only a faint hint of unearthly presence or none at all, don't worry. Try again with Ganesh, Odin or a god you feel more in tune with. Keep doing the experiment until you succeed in generating the required state of mind. It's not difficult; if you can make yourself Angry or Sad or Happy just by thinking about something (and most of us can). then you are already capable of summoning gods and Big Ideas.
+> **EXPERIMENT:**
+> Pick a traditional god or demon from a book on magic or mythology and learn all you can about your chosen subject. I suggest you start with a benign deity unless you're stupid or hard and want to get into some nasty dirty psychic business, in which case pick a demon from one of the medieval grimoires and hope you're strong enough to handle the intense negative feelings "demons" embody.
+> 
+> However, I'd suggest starting first with Hermes, the god of Magic, in his guise as Ganesh. Ganesh is known as a smasher of obstacles and part of his complex is that he opens the way into the magical world, so it's always good to get his acquaintance first if you're serious about following a magical path. 
+> 
+> Call fervently upon Hermes. Luxuriate in his attributes. Drink coffee or Red Bull in his name or take a line of speed, depending on your levels of drug abuse. Fill your head with speedy images of jet planes, jet cars and bullet trains. Play "Ray of Light" by Madonna and call down Hermes. Surround yourself with FLASH comics and call down Hermes. 
+> 
+> Tell him how very wonderful he is in your own words, and then call him into yourself, building a bridge between your own ever-growing feelings of brilliance and the descending energies of the Big Idea. 
+> 
+> The arrival of the god will be unmistakable: you should experience a sense of presence or even mild possession (remember what this MEANS; we are "possessed' by Venus when LOVE destroys our reason. We are all possessed by Mars when ANGER blinds us. Learn to recognize the specific feelings which the word "possession" describes. This will allow you to study your chosen Big Idea and its effects on the human nervous system at close quarters without becoming too frightened or emotionally overwhelmed.) 
+> 
+> You may hear a distinct voice inside your head which seems to have a strange-yet-familiar quality of "Otherness" or separateness. Ask questions and make note of the replies in your head. Remember anything specific you hear and write it down no matter how strange it seems. Maintain the sense of contact, question and response for as long as you're able and see what you can learn. 
+> 
+> Remember Hermes is a trickster also and has a love of language and games, so be prepared for clever wordplay and riddles when you contact this Big Idea. Sometimes the rapid torrent of puns and jokes can seem like a nightmare of fractal iterations but if you're going to play with Hermes, be ready to think fast and impress with your wit. 
+> 
+> If, on the other hand. there's only a faint hint of unearthly presence or none at all, don't worry. Try again with Ganesh, Odin or a god you feel more in tune with. Keep doing the experiment until you succeed in generating the required state of mind. It's not difficult; if you can make yourself Angry or Sad or Happy just by thinking about something (and most of us can). then you are already capable of summoning gods and Big Ideas.
 
 ---
 
@@ -39,23 +39,23 @@ If, on the other hand. there's only a faint hint of unearthly presence or none a
 
 還元主義者たちは、「オリュンポス山」を人間の集合的頭脳のメタファーと捉えることで、魔術への理解に至るかもしれない。
 
-**実験：**
-魔術や神話の書から、伝統的な神または悪魔をひとつ選び、その存在について学べる限りのことを学べ。初心者であれば、まずは穏やかな神格から始めるのをすすめる。  
+> **実験：**
+> 魔術や神話の書から、伝統的な神または悪魔をひとつ選び、その存在について学べる限りのことを学べ。初心者であれば、まずは穏やかな神格から始めるのをすすめる。  
 どうしようもなく無謀だったり、心が屈強で汚れた霊的領域に飛び込みたいというなら、中世のグリモワールに載っているような悪魔を選んでもいい。ただし、「悪魔」が体現する強烈なネガティブ感情を扱える覚悟があるなら、の話だ。
-
-とはいえ、最初の一歩としてはやはり、魔術の神ヘルメス──そのガネーシャとしての姿から始めるのがよいだろう。ガネーシャは障害を破壊する者として知られ、魔術的世界への道を開く性質をもっている。本気で魔術の道を進みたいなら、最初に彼と親しくなるのがよい。
-
-ヘルメスを心から呼び求め、その属性にどっぷり浸れ。彼の名においてコーヒーを飲め、レッドブルでもいい。ドラッグに耐性があるならスピードでも。ジェット機や弾丸列車、超高速のイメージで頭をいっぱいにせよ。マドンナの「Ray of Light」をかけ、ヘルメスを招け。
-
-フラッシュ・コミックスに囲まれ、ヘルメスを召喚せよ。そして、自分の言葉で彼がいかに素晴らしいかを伝えよ。そうして、内なる輝きとビッグ・アイディアの降臨エネルギーのあいだに橋をかけるのだ。
-
-神の到来ははっきりとわかるはずだ。何らかの「臨在感」や、軽い憑依のような感覚がある。（これはどういう意味か？たとえば、愛に理性を壊されたとき、私たちは金星に「憑かれて」いる。怒りに我を忘れるとき、私たちは火星に「憑かれて」いる。「憑依」という言葉が指す特有の感情を認識できれば、あなたはビッグ・アイディアの神経系への影響を、過剰に怯えることなく観察できるだろう。）
-
-あなたの頭の中に、奇妙で親しみある「別の声」が聞こえるかもしれない。問いかけてみよう。返ってきた内容をメモしよう。どんなに奇妙でも、具体的に覚えていることは書き留めておくこと。その「接触感」と「応答の往復」が続く限り、観察し続け、学べることを見つけよ。
-
-ヘルメスはトリックスターであり、言葉とゲームの愛好者でもある。だから言葉遊びや謎かけにも備えておけ。言葉の洪水が悪夢のようなフラクタル地獄に感じられることもあるが、ヘルメスと遊びたいなら、頭の回転を早め、機知で勝負する覚悟を持て。
-
-もし、ほとんど何も感じない、あるいはごく微かな異質感しかないとしても──心配はいらない。今度はガネーシャやオーディン、あるいは自分がもっとしっくりくる神格で試してみればいい。この実験を繰り返し、望ましい心的状態を生み出せるまで続けるのだ。それは難しいことではない。誰もが何かを思い浮かべるだけで、怒ったり悲しくなったり嬉しくなったりできる。それができるということは、すでに「神」や「根源の力」を召喚できているのだ。
+>
+> とはいえ、最初の一歩としてはやはり、魔術の神ヘルメス──そのガネーシャとしての姿から始めるのがよいだろう。ガネーシャは障害を破壊する者として知られ、魔術的世界への道を開く性質をもっている。本気で魔術の道を進みたいなら、最初に彼と親しくなるのがよい。
+>
+> ヘルメスを心から呼び求め、その属性にどっぷり浸れ。彼の名においてコーヒーを飲め、レッドブルでもいい。ドラッグに耐性があるならスピードでも。ジェット機や弾丸列車、超高速のイメージで頭をいっぱいにせよ。マドンナの「Ray of Light」をかけ、ヘルメスを招け。
+>
+> フラッシュ・コミックスに囲まれ、ヘルメスを召喚せよ。そして、自分の言葉で彼がいかに素晴らしいかを伝えよ。そうして、内なる輝きとビッグ・アイディアの降臨エネルギーのあいだに橋をかけるのだ。
+>
+> 神の到来ははっきりとわかるはずだ。何らかの「臨在感」や、軽い憑依のような感覚がある。（これはどういう意味か？たとえば、愛に理性を壊されたとき、私たちは金星に「憑かれて」いる。怒りに我を忘れるとき、私たちは火星に「憑かれて」いる。「憑依」という言葉が指す特有の感情を認識できれば、あなたは根源の力の神経系への影響を、過剰に怯えることなく観察できるだろう。）
+>
+> あなたの頭の中に、奇妙で親しみある「別の声」が聞こえるかもしれない。問いかけてみよう。返ってきた内容をメモしよう。どんなに奇妙でも、具体的に覚えていることは書き留めておくこと。その「接触感」と「応答の往復」が続く限り、観察し続け、学べることを見つけよ。
+>
+> ヘルメスはトリックスターであり、言葉とゲームの愛好者でもある。だから言葉遊びや謎かけにも備えておけ。言葉の洪水が悪夢のようなフラクタル地獄に感じられることもあるが、ヘルメスと遊びたいなら、頭の回転を早め、機知で勝負する覚悟を持て。
+> 
+> もし、ほとんど何も感じない、あるいはごく微かな異質感しかないとしても──心配はいらない。今度はガネーシャやオーディン、あるいは自分がもっとしっくりくる神格で試してみればいい。この実験を繰り返し、望ましい心的状態を生み出せるまで続けるのだ。それは難しいことではない。誰もが何かを思い浮かべるだけで、怒ったり悲しくなったり嬉しくなったりできる。それができるということは、すでに「神」や「根源の力」を召喚できているのだ。
 
 ---
 
