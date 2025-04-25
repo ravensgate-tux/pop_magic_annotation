@@ -56,8 +56,8 @@ POP MAGICは七つのヴェールを取り払いって「無限」の乳房を�
 | [SIGILS: DISPOSAL](pop_magic_annotation_11.md) | シジルの処理 |
 | [VIRAL SIGILS](pop_magic_annotation_12.md) | ウイルス的シジル |
 | [HYPERSIGILS](pop_magic_annotation_13.md) | ハイパーシジル |
-| [HOW TO CHAT UP GODS](pop_magic_annotation_14.md) | 神々と会話するには |
-| [HOW MANY HERMES?](pop_magic_annotation_15.md) | いくつのヘルメス？ |
+| [HOW TO CHAT UP GODS](pop_magic_annotation_14.md) | 神々との話し方 |
+| [HOW MANY HERMES?](pop_magic_annotation_15.md) | ヘルメスは何人？ |
 | [DEMONS ARE…](pop_magic_annotation_16.md) | デーモンとは… |
 | [HEALING](pop_magic_annotation_17.md) | ヒーリング |
 | [DUDE, WHERE'S MY EGO?](pop_magic_annotation_18.md) | おい、俺のエゴはどこだ？ |
