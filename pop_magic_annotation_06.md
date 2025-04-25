@@ -11,7 +11,7 @@ Magical Consciousness can be practiced until it merges with and becomes everyday
 > Five minutes of focus during which everything is significant, everything is luminous and heavy with meaning, like the objects seen in dreams.
 >
 >Go.
-
+>
 >**EXPERIMENT:**
 >
 > Next, relax, go for a walk and interpret everything you see on the way as a message from the Infinite to you.  
@@ -34,7 +34,7 @@ Watch for patterns in the flight of birds. Make oracular sentences from the lett
 > 5分間、周囲のすべてが意味を持って訴えかけてくると仮定して観察してみよう。すべてが夢の中のように輝き、意味に満ちた重みを持って感じられる。
 > 
 > さあ、やってみよう。
-
+>
 > **実験：**
 > 
 > 次に、リラックスして散歩に出かけ、目にするものすべてを「無限からのメッセージ」として解釈してみよう。鳥の飛び方にパターンを見つけ、車のナンバープレートの文字から神託文を作ろう。建物のシルエットの動きや、通りの音、落書きのシジル、聞こえてくる声の中に隠れた命令や嘆願を探せ。「行間を聴く」つもりで歩こう。目的なく、ただ経験そのものを味わって歩けば歩くほど、魔術的意識は深まっていく。
