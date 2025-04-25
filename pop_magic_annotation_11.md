@@ -19,7 +19,7 @@ Soiled paper and tissues can easily be disposed of in your mum's purse or the po
 ### 🐌 「知られざる呪術師」による注釈
 
 - Ravensgateはグラント・モリスンの意見に同意する。
-- 気分で選べということなので特にいうべきこともない。
+- 効果が出る方法を選べということなので特に決まりはない。
 - 人によってはシジルやサーヴァタールやタルパは処分すべきだという思うだろうが、Ravensgateでは処分が必須と考えてはいない。 
 
 ---
