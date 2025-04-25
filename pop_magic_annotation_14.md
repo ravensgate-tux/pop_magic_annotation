@@ -40,7 +40,7 @@ The magician consciously evokes these states and renames them gods in order to s
 
 ---
 
-### 🐌 注釈（Ravensgate視点）
+### 🐌 「知られざる呪術師」による注釈
 
 - 本章は、神々とは「人間の意識状態の象徴化されたイメージ」であり、神話の形を通して意図的に呼び出すことができるという魔術的理解を示す。
 - Ravensgateではこの考え方に完全に賛同しており、「神を召喚するとは、特定の状態へ自らを同調させること」だと捉えている。
