@@ -11,6 +11,7 @@ Hermes, Mercury, Odin, Ganesh, Thoth: all these names represent variant embodime
 Reductionists may come to an understanding of magic by considering "Mount Olympus" as a metaphor for the collective Human head.
 
 > **EXPERIMENT:**
+> 
 > Pick a traditional god or demon from a book on magic or mythology and learn all you can about your chosen subject. I suggest you start with a benign deity unless you're stupid or hard and want to get into some nasty dirty psychic business, in which case pick a demon from one of the medieval grimoires and hope you're strong enough to handle the intense negative feelings "demons" embody.
 > 
 > However, I'd suggest starting first with Hermes, the god of Magic, in his guise as Ganesh. Ganesh is known as a smasher of obstacles and part of his complex is that he opens the way into the magical world, so it's always good to get his acquaintance first if you're serious about following a magical path. 
@@ -40,6 +41,7 @@ Reductionists may come to an understanding of magic by considering "Mount Olympu
 還元主義者は、「オリュンポス山」を人間の集合的頭脳のメタファーと捉えることで、魔法を理解できるようになるかもしれない。
 
 > **実験：**
+> 
 > 魔術や神話の書から伝統的な神または悪魔をひとつ選んで、その存在についてできる限りのことを学ぼう。初心者であれば、まずは穏やかな神格から始めるのをすすめる。
 どうしようもなく無謀か頑固で、どうしても汚れた霊の領域に飛び込みたいというなら、中世の魔導書から悪魔を選んでもいい。ただし、「悪魔」が体現する強烈なネガティブな感情を扱う覚悟が必要になる。
 >
