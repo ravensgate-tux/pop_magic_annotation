@@ -3,7 +3,8 @@
  Magic is easy to do. Dozens of rulebooks and instruction manuals are available in the occult or "mind, body and spirit" sections of most modern bookstores. Many of the older manuals were written during times when a powerful and vindictive Church apparatus was attempting to suppress all roads to the truth but most of them are generally so heavily coded and disguised behind arcane symbol systems that it's hardly worth the bother—except for an idea of how other people used THEIR imaginative powers to interpret non-ordinary contacts and communications.
 
 Aleister Crowley—magic's Picasso—wrote this and I can't say it any better than he did:  
-“In this book it is spoken of the sephiroth and the paths, of spirits and conjurations, of gods, spheres, and planes and many other things which may or may not exist. It is immaterial whether they exist or not. By doing certain things, certain results follow; students are most earnestly warned against attributing objective reality or philosophical validity to any of them.”
+
+**“In this book it is spoken of the sephiroth and the paths, of spirits and conjurations, of gods, spheres, and planes and many other things which may or may not exist. It is immaterial whether they exist or not. By doing certain things, certain results follow; students are most earnestly warned against attributing objective reality or philosophical validity to any of them.”**
 
 This is the most important rule of all which is why it's here at the start. As you continue to learn and develop your own psychocosms and styles of magical practice, as you encounter stranger and stranger denizens of the Hellworlds and Hyperworlds, you'll come back to these words of wisdom again and again with a fresh understanding each time.
 
