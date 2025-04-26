@@ -28,7 +28,7 @@ Ravensgateがここに注釈を加えた理由は、
 知られざる呪術師（Le Sorcier Inconnu）  
 Ravensgate-tux Project  
 
--　🐌[Witchcraft API v0.1 プロトコル](https://github.com/ravensgate-tux/witchcraft_api_v01/tree/main)
+🐌[Witchcraft API v0.1 プロトコル](https://github.com/ravensgate-tux/witchcraft_api_v01/tree/main)
 
 ---
 
